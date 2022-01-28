@@ -1,0 +1,1 @@
+# kagaribi_6_seed
