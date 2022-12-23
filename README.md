@@ -1,1 +1,1 @@
-# kagaribi_6_seed
+# kagaribi_8_seed
